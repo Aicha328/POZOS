@@ -1,2 +1,0 @@
-# POZOS
-liste des etudiant
